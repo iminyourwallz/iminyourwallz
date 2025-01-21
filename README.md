@@ -6,7 +6,7 @@
 
 ⊹ ─ i play ponytown ,' sky: children of the light { hmu if u play sky <3 } ,' minecraft (sometimes) ˊ˗
 
-⊹ ─ im a space safe to convide in !! but plz do respect the tags in my name if i have any :> ˊ˗
+⊹ ─ im a space safe to confide in !! but plz do respect the tags in my name if i have any :> ˊ˗
 
 ⊹ ─ big fan of indie rock ,' synthwave ,' etc. i have great musik taste trust!! ˊ˗
 
